@@ -3,7 +3,7 @@
 - 👻 Top Hosting Servers That I Use:
 - 🌙 Lunar Hosting:
 - 🌙 Lunar Hosting Server:https://discord.gg/HNB7b5mm2B
-- 🌙 Lunar Hosting Webbsite:https://my.lunarhosting.top/
+- 🌙 Lunar Hosting Website:https://my.lunarhosting.top/
 - 🔺 Smk Hosting:
 - 🔺 Smk Hosting Server:https://discord.gg/smkhosting
 - 🔺 Smk Hosting Website:https://smkhosting.online/
